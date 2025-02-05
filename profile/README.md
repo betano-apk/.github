@@ -1,4 +1,4 @@
-# Betano APK para Iphone Como Aplicativo Grátis Atualizado 2025
+# Betano APK para iphone Como Aplicativo Grátis Atualizado 2025
 ## ⬆️ [Link Baixar: Betano APK](https://apksil.com/) 📲
 Se você é um fã de apostas esportivas e cassinos online, o Betano APK é a escolha perfeita para levar sua experiência de jogo para um novo nível. Com sua interface moderna, variedade de esportes e opções de cassino ao vivo, o aplicativo se destaca como uma das melhores opções do mercado. Vamos explorar as novidades da versão mais recente e como ela pode transformar suas apostas!
 
